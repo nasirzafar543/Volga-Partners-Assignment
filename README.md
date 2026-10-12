@@ -1,1 +1,0 @@
-# Volga-Partners-Assignment
